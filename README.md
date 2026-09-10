@@ -93,7 +93,6 @@ DSA & Problem Solving   ███████████████░░░�
 
 📧 Email: **[akhileshramola.2000@gmail.com](mailto:akhileshramola.2000@gmail.com)**
 
-💼 LinkedIn: **[linkedin.com/in/akhilesh-ramola-3b66a9300](https://linkedin.com/in/akhilesh-ramola-3b66a9300)**
 
 💻 GitHub: **[github.com/Daddycool122](https://github.com/Daddycool122)**
 
